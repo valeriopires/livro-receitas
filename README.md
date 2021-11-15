@@ -6,4 +6,7 @@ Olá! Bem-vindo ao meu livro de receitas:cake:
 
 - Pavê
 
+- Bolo de Cenoura
+
   
+
